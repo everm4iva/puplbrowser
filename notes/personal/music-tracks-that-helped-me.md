@@ -12,8 +12,8 @@ Extra note: the lack of context is on purpose. Deal with it.
 | Author(s)    | Track name | Reason |
 | -------- | ------- | ------- |
 | Queen Cult  | Be Better    | Rebel a little when writting stuff, it kinda lets me loose when i have to think out loud |
-| Pinkshift | Vacant    | Be patient to not breakdown for writting so much.
-| Destroy Boys | Junk | Comfort music
+| Pinkshift | Vacant    | Helps me be patient to not breakdown emotionally for writting so much.
+| Destroy Boys | Junk | Gibes me comfort :3
 | BEX | politix |
 | Grandson | Dirty | Makes me go "game on bitch".
 | Mommy Long Legs | Assholes | The music "Assholes" was the first music i've listen in this project, since i can remember. It ended loop phases of planning, kinda made me fantasise about "chrome killer" stuff and the big market.. Now it's just a symbol of the early stages of this project.
@@ -26,6 +26,7 @@ Extra note: the lack of context is on purpose. Deal with it.
 | Schoolyard Heroes  | Puts my artistic side to use, like a performer without a croud (heheh)    |
 | Destroy Boys  |     |
 | VALERAS  |     |
+| ivri  | You music is just perfection.. gives me a feeling i can't well describe, but i guess makes me more me.. the real me, it heals me. I am deeply grateful for every second i listen to any of your tracks, they are ART.   |
 | BEX  | Puts my **PUNK** side to use. RAWRRRRR   |
 | GRLwood  | Makes me vulnerable. Makes me fragile, makes me feel more human, more emotionally open.    |
 | Grandson | Thanks for warning me about the stupid political situation we are about to live in and many other topics you talk about. I wont forget to get my hands dirty to do what the world actually needs. Big inspiration.
