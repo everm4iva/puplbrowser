@@ -1,5 +1,5 @@
 #1 - Pupl is miswritten "purple".
-#2 - I been planning this whole project and what it could be for over a year.. (officially born on: 12 march 2025)
+#2 - I been planning this whole project and what could be for over a year.. (officially born on: 12 march 2025)
 #3 - Installed many old vm (virtual machines) with old OS, tested old browsers.. it was soo cool exploring that, i feel like we lost something important along the way. - Experimental spirit
 #4 - When i started thinking of this browser, i kinda.. was hyped about it, thinking it was the next "chrome killer". But fortunately, i gained some fucking brain cells and stopped feeding my ego.
 #5 - The more i think.. about anything (this browser included), the more abstract and twisted the idea gets, it kinda makes it better.
@@ -7,3 +7,4 @@
 #7 - I have all planning documents on the /notes folder. Just hidden :O
 #8 - The license was created by me... and i misstyped something. Good thing i don't care, adds personality, non-intentional error is art.
 #9 - First supporter ever: "mrtspeedy".
+#10 - Typos are compleatly on purpose here :P
