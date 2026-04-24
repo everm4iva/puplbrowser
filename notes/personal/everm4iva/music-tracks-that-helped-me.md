@@ -11,23 +11,28 @@ Extra notes:
 # Music tracks that helped me
 > If i leave something blank, means i cannot describe exactly what helped, doesn't mean it didn't help!!11!!
 
-| Author(s)    | Track name | Reason |
-| -------- | ------- | ------- |
-| Queen Cult  | Be Better    | Rebel a little when writting stuff, it kinda lets me loose when i have to think out loud |
-| Pinkshift | Vacant    | Helps me be patient to not breakdown emotionally for writting so much.
-| Destroy Boys | Junk | Comfort punk song :3
-| ivri | NOISE | Magical. Makes me see starts.. makes my head spin around in euphoria.
-| Scowl | Fantasy | "Couldn't really quite explain / Replace the pain with fantasy"!!!
-| BEX | we'll never b like u | |
-| STYXVII | ITSONLYAGIRLIFYOUCANHAVESEXWITHIT | Social/Body Dysphoria potential killer |
-| VALERAS  | Rita | This music has it's own feeling, what an thing to experience this.. it drives me away from reality... for 3 minutes and 14 seconds. I'm never skipping this one.
-| Grandson | Dirty | Makes me go "game on bitch".
-| Mommy Long Legs | Assholes | The music "Assholes" was the first music i've listen in this project, since i can remember. It ended loop phases of planning, kinda made me fantasise about "chrome killer" stuff and the big market.. Now it's just a symbol of the early stages of this project.
+| Author(s)    | Track name | Reason | Genre |
+| -------- | ------- | ------- | ------- |
+| Queen Cult  | Be Better    | Rebel a little when writting stuff, it kinda lets me loose when i have to think out loud | Rock
+| Pinkshift | Vacant    | Helps me be patient to not breakdown emotionally for writting so much. | Rock
+| Destroy Boys | Junk | Comfort punk song :3 | Rock |
+| ivri | NOISE | Magical. Makes me see starts.. makes my head spin around in euphoria. | Digital Rock |
+| ivri | erosion | Feels like im eroding through something.. somewhere. | Digital Rock |
+| ivri | tower of memories |  | Digital Rock |
+| Scowl | Fantasy | "Couldn't really quite explain / Replace the pain with fantasy"!!! | Rock |
+| BEX | we'll never b like u | Punk Rock |
+| STYXVII | ITSONLYAGIRLIFYOUCANHAVESEXWITHIT | Social/Body Dysphoria potential killer | Digital Breakcore |
+| VALERAS  | Rita | This music has it's own feeling, what an thing to experience this.. it drives me away from reality... for 3 minutes and 14 seconds. I'm never skipping this one. | Alternative Rock |
+| Grandson | Dirty | Makes me go "game on bitch". | Alt/Rap Rock |
+| Mommy Long Legs | Assholes | The music "Assholes" was the first music i've listen in this project, since i can remember. It ended loop phases of planning, kinda made me fantasise about "chrome killer" stuff and the big market.. Now it's just a symbol of the early stages of this project. | Punk |
+| Sink Saiko | how i got it bad | feels like i can actually hold something for real in my life, beyond physical sensation | Digital Breakcore |
+| Alex Vile | Lucky Number | Peaceful, running in the beach type thing. | Indie Rock |
+| jorj1357 | Lucky Number | Peaceful, running in the beach type thing. | Indie Rock |
 
 # Great thanks for these music Artists/Bands/Groups
 > If i leave something blank, means i cannot describe exactly what helped, doesn't mean it didn't help!!11!!
 
-| Author(s)    | What helped |
+| Author(s)    | Reason |
 | -------- | ------- |
 | Schoolyard Heroes  | Puts my artistic side to use, like a performer without a croud (heheh)    |
 | Caravan Palace  |     |
@@ -37,6 +42,10 @@ Extra notes:
 | Grandson | Thanks for warning me about the stupid political situation we are about to live in and many other topics you talk about. I wont forget to get my hands dirty to do what the world actually needs. Big inspiration.
 | Mommy Long Legs  | |
 | Dysmn  | |
+| Penelope Scott  | |
+| TTSSFU  | |
+| jorj1357 | Desregulates my mood/energy, sometimes too much, sometimes too little... And feels like a drug.  |
+| quannnic  | |
 | Black Dresses | My bipolar disorder just.. deactivates with your music, what is good sometimes, i feel way more free to do something and not get inverted thoughts in the middle of it. Also.. SICK BEATS!! The lyrics match my way of thinking 86% accurately.    |
 
 > I will add a lot, but a LOT more tracks here.

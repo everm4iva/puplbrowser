@@ -12,7 +12,14 @@ a little space where i (and collaborators) can publicly tell the state of the pr
 ## -- general news --
 </div>
 
-###  ☆ creation of this public diary file - [ latest ]
+###  ☆ Personal Issues / Pause dev - [ latest ]
+> 24th april 2026 | by everm4iva
+
+I been having some personal issues, my mental health is like.. getting worse, ig.
+
+Im going to pause for a bit the development. Tell you news soon. If i don't post here in few days, i am probably still resting or working on getting better.
+
+###  ☆ creation of this public diary file
 > 16th april 2026 | by everm4iva
 
 nothing relevant. come here later, might have some cool stuff. i was kinda getting emotional on the dev notes heheh..
