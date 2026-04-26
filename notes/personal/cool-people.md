@@ -12,4 +12,6 @@
 
 -# Quick note #-
 
+I told very few people about this project.. what it means, what it is about - and the behind scenes. So normally it wouldn't be here many people that actively support or/and help-me through stuff.
+
 If any person that appears on this list wants to change something or remove themselves, please contact me through my discord or any social media: https://everm4iva.github.io/social

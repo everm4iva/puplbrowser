@@ -8,3 +8,4 @@
 #8 - The license was created by me... and i misstyped something. Good thing i don't care, adds personality, non-intentional error is art.
 #9 - First supporter ever: "mrtspeedy".
 #10 - Typos are compleatly on purpose here :P
+#11 - Manifest file in the root of this project.. doesnt describe the project itself, only the raw will - hard to translate, can lose context.
