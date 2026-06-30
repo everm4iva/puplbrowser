@@ -12,7 +12,18 @@ a little space where i (and collaborators) can publicly tell the state of the pr
 ## -- general news --
 </div>
 
-###  ☆ Personal Issues / Pause dev - [ latest ]
+###  ☆ I'm back, but not with the project - [ latest ]
+> 30rd june 2026 | by everm4iva
+
+Well.. im back, i have real sense of clarity by my side, added a new note explaining how i got here, but it's not public.
+
+For now, all i have to say: im a lot better than last time, im preparing myself to make this whole thing come true. Day by day.
+
+As you probably see in the title, the project is not back, the development is still paused.. or at least walking near 0 speed.
+
+Good luck, crazy people!
+
+###  ☆ Personal Issues / Pause dev
 > 24th april 2026 | by everm4iva
 
 I been having some personal issues, my mental health is like.. getting worse, ig.

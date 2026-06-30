@@ -27,7 +27,6 @@ Extra notes:
 | Mommy Long Legs | Assholes | The music "Assholes" was the first music i've listen in this project, since i can remember. It ended loop phases of planning, kinda made me fantasise about "chrome killer" stuff and the big market.. Now it's just a symbol of the early stages of this project. | Punk |
 | Sink Saiko | how i got it bad | feels like i can actually hold something for real in my life, beyond physical sensation | Digital Breakcore |
 | Alex Vile | Lucky Number | Peaceful, running in the beach type thing. | Indie Rock |
-| jorj1357 | Lucky Number | Peaceful, running in the beach type thing. | Indie Rock |
 
 # Great thanks for these music Artists/Bands/Groups
 > If i leave something blank, means i cannot describe exactly what helped, doesn't mean it didn't help!!11!!
