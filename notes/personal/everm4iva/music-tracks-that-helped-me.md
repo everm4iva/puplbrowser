@@ -27,6 +27,11 @@ Extra notes:
 | Mommy Long Legs | Assholes | The music "Assholes" was the first music i've listen in this project, since i can remember. It ended loop phases of planning, kinda made me fantasise about "chrome killer" stuff and the big market.. Now it's just a symbol of the early stages of this project. | Punk |
 | Sink Saiko | how i got it bad | feels like i can actually hold something for real in my life, beyond physical sensation | Digital Breakcore |
 | Alex Vile | Lucky Number | Peaceful, running in the beach type thing. | Indie Rock |
+| Karen Dió | Sick Ride / Free yourself / Stupid |  | Rock |
+| Charli xcx | Von dutch |  | electropop/house |
+| pluko | FALLING / RUNAWAY | somehow.. it makes complicated stuff easier, i never get why chopped audios have that effect on me... but this music does that effect in a stronger way than any other audios. | electro trance |
+| Ninajirachi | All i am / Delete |  | electropop/house |
+
 
 # Great thanks for these music Artists/Bands/Groups
 > If i leave something blank, means i cannot describe exactly what helped, doesn't mean it didn't help!!11!!
@@ -34,14 +39,16 @@ Extra notes:
 | Author(s)    | Reason |
 | -------- | ------- |
 | Schoolyard Heroes  | Puts my artistic side to use, like a performer without a croud (heheh)    |
-| Caravan Palace  |     |
+| Caravan Palace  |  |
 | ivri  | You music is just perfection.. gives me a feeling i can't well describe, but i guess makes me more me.. the real me, it heals me. I am deeply grateful for every second i listen to any of your tracks, they are ART.   |
 | BEX  | Puts my **PUNK** side to use. RAWRRRRR   |
 | GRLwood  | Makes me vulnerable. Makes me fragile, makes me feel more human, more emotionally open.    |
 | Grandson | Thanks for warning me about the stupid political situation we are about to live in and many other topics you talk about. I wont forget to get my hands dirty to do what the world actually needs. Big inspiration.
-| Mommy Long Legs  | |
+| Mommy Long Legs  | Got me crazy when i most needed. |
+| Ninajirachi  | |
+| Bikini Kill  | |
 | Dysmn  | |
-| Penelope Scott  | |
+| Penelope Scott  | Melodical masterpieces, it pauses or slow-mo all project thoughts so i can breathe a little. |
 | TTSSFU  | |
 | jorj1357 | Desregulates my mood/energy, sometimes too much, sometimes too little... And feels like a drug.  |
 | quannnic  | |
